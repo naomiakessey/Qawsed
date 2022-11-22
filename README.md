@@ -1,0 +1,2 @@
+# Qawsed
+Almight God
